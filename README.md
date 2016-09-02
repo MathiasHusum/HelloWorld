@@ -1,2 +1,5 @@
 # HelloWorld
-fjams
+Hello infidels
+
+Mathias her
+Fredagsbar bliver viiiildt!
